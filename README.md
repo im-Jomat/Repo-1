@@ -6,3 +6,4 @@ fallar y volver a intentar
 
 ### i wil never give up
 pero nunca desistir
+Just live doing it, and you will not suffer in future
